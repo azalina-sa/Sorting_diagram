@@ -1,1 +1,1 @@
-![Banner](Диаграмма-2.2-ENG.drawio.png)
+![Banner](ххххх.drawio.png)
